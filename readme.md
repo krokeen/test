@@ -1,2 +1,1 @@
-بنجرب اله
-try again sorry
+ماحنا معلمين اهو امال مفيش internship 
